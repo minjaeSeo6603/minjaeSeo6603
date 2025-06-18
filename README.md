@@ -5,3 +5,4 @@
 - 💬 Please don't hesitate to reach out if you have any innovative ideas on answering the research question above
 - 📫 Please email me ppori34[at]berkeley[dot]edu
 - 😄 Pronouns: he/him/his
+- Linkedin: https://www.linkedin.com/in/minjae-seo-6915b31b5/
